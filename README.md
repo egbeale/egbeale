@@ -1,1 +1,1 @@
-![Elizabeth beale (2)](https://user-images.githubusercontent.com/100111219/161450822-bc7dd853-1226-491f-a575-fb70e1ad7df7.gif)
+![github_banner](https://user-images.githubusercontent.com/100111219/163298667-f59edeb0-5d84-485b-97f2-b716c8f48fba.gif)
